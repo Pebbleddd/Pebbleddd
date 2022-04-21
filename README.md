@@ -1,4 +1,4 @@
-- 👋 Hi, I’m _Pebble#0100 on discord
-- 👀 I’m interested in coding i guess
-- 🌱 I’m currently learning i want to learn java maybe and learning python in school
-- 📫 How to reach me _Pebble#0100 on discord
+_Pebble#0100 on discord
+i be dibbling and dabbling in coding
+might (try) to learn java and im learning python in school+i mess around with batch
+DM  ME AT _Pebble#0100 on discord if you want to know anything
