@@ -1,4 +1,1 @@
 - _Pebble#0100 on discord
-- Trying to learn more langs like c++ maybe idk
-- i know some batch and basic java i guess 
-- dm me  _Pebble#0100 on discord if you want to know anything or somthing idk
